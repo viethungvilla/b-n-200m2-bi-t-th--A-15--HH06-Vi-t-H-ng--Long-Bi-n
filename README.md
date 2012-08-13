@@ -1,0 +1,4 @@
+b-n-200m2-bi-t-th--A-15--HH06-Vi-t-H-ng--Long-Bi-n
+==================================================
+
+Tôi cần bán lô biệt thự No06 diện tích 200m2, hướng Tây Bắc. Vị trí đẹp nhìn ra trường học và đất công cộng, đường 17m, xây thô và đã hoàn thiện ngoài. Cách vincom village 200m. Giá rẻ. Giấy tờ uỷ quyền công chúng. Liên hệ 0917836226.  Tag: Việt Hưng,   Long Biên,   bán biệt thự việt hưng,   bán biệt thự việt hưng 2012,   bán biệt thự việt hưng hh6,   bán biệt thự hh6 việt hưng,   bán biệt thự việt hưng hh06,   bán biệt thự hh06 việt hưng,   bán biệt thự việt hưng No-06,   bán biệt thự hỗn hợp việt hưng,   bán nhà biệt thự việt hưng,   bán biệt thự khu đô thị mới việt hưng,   bán biệt thự liền kề việt hưng,   bán biệt thự nhà vườn việt hưng    Link: http://taiday.net/biet-thu-lien-ke/can-ban-200m2-biet-thu-a-15-hh06-viet-hung-long-bien___83326.html
